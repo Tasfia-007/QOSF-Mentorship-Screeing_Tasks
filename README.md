@@ -1,1 +1,1 @@
-# QOSF-Mentorship-Screeing_Tasks
+# QOSF-Mentorship-Screening_Tasks
